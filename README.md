@@ -5,11 +5,17 @@ Email: branecode@gmail.com
 Phone: +44 773 131 7843
 
 Socials:
+
 Twitter - https://twitter.com/branecode
+
 Linktree - linktr.ee/branecode
+
 Substack - https://branecode.substack.com/
+
 Patreon - https://www.patreon.com/Branecode
+
 Medium - https://medium.com/@branecode
+
 BuyMeACoffee - https://www.buymeacoffee.com/branecode
 
 If you have any questions feel free to reach out using any of the methods above.
