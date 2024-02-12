@@ -1,7 +1,9 @@
 We're glad you're here. At Branecode, we're committed to fostering an open and supportive community where everyone feels empowered to ask questions, share experiences, and learn from each other. Don't hesitate to reach out - we're here to guide you on your journey to achieving peak cognitive performance!
 
 Contact Information:
+
 Email: branecode@gmail.com
+
 Phone: +44 773 131 7843
 
 Socials:
