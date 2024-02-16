@@ -10,7 +10,7 @@ Socials:
 
 Twitter - https://twitter.com/branecode
 
-Linktree - linktr.ee/branecode
+Linktree - https://linktr.ee/branecode
 
 Substack - https://branecode.substack.com/
 
